@@ -2,7 +2,7 @@
 
 University of Waterloo - Computer Science
 
-Actively seeking software engineering opportunities.
+Looking for software engineering opportunities!
 
 ### Connect with me!
 
